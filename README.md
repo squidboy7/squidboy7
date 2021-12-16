@@ -1,4 +1,4 @@
-"git gud kid"
+Current child, Former fetus.
 <!---
 squidboy7/
 squidboy7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
